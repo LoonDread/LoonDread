@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LoonDread
 - 👀 I’m interested in art, mental health, Psychology, gaming, mincraft, 
-- 🌱 I’m currently at the begining of my journey of learning into coding.
+- 🌱 I’m currently at the begining of my journey of learning coding.
 - 💞️ I’m looking to collaborate on ...
 - 😄 Pronouns: They/Them 
 - ⚡ Fun fact: ...
